@@ -1,1 +1,0 @@
-flashcardzão brabo
